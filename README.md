@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Evilsun8
 - 👀 I’m interested in: Herr Cohaupt
-- 🌱 I’m currently learning: To cope with bithes
+- 🌱 I’m currently learning: To cope with bitches
 - 💞️ I’m looking to collaborate on: Everything around money
 - 📫 How to reach me: Via bottle on a deserted island
 - 😄 Pronouns: She/They 💎
